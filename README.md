@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Levion
+- 👀 I’m interested in Art and Animation
+- 🌱 I’m currently learning 2D Animation
+- 💞️ I’m looking to collaborate on any freelance Animation jobs
+- 📫 How to reach me: levondbellamy@gmail.com, 646-418-0109, and www.levondbellamy.com
